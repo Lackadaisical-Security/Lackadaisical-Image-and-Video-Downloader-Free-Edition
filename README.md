@@ -1,0 +1,1 @@
+# Lackadaisical-Image-and-Video-Downloader-Free-Edition
